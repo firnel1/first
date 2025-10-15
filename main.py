@@ -1,6 +1,3 @@
-from os import dtyursr
-fxfgxfgk
-uyftydx
-yftrdzxfcgvhj
-oiyutyrdsxcvn
-uytrdfhg
+534523585876
+786543
+786534
